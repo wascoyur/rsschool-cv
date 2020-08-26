@@ -1,1 +1,1 @@
-# rsschool-cv
+ https://wascoyur.github.io/rsschool-cv/cv
